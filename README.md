@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BashBear59
+- 👀 I’m interested in all areas of tech but I'm either going to focus on UI or UX Design, or Software Engineering
+- 🌱 I’m currently learning what to do next and working on the 21 day challenge
+- 💞️ I’m looking to collaborate on nothing, right now
+- 📫 How to reach me: text me at (760) 468-5296
